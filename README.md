@@ -8,3 +8,6 @@
 
 -Link video avance proyecto
 https://youtu.be/GPP-yrrFM4M
+
+-Link Video Entrega final proyecto
+https://youtu.be/deYx1AAj5A0
